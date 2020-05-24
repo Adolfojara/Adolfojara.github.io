@@ -1,4 +1,4 @@
 # Erythroxylum de Colombia
 
-![Erythroxylum citrifolium](https://github.com/Adolfojara/Adolfojara.github.io/blob/master/Erythroxylum%20citrifolium)
+![Erythroxylum gracilipes](https://github.com/Adolfojara/Adolfojara.github.io/blob/master/DSC02127.JPG)
 
