@@ -1,4 +1,4 @@
 # Erythroxylum de Colombia
 
-![Erythroxylum citrifolium](/Erythroxylum citrifolium.jpg)
+![Erythroxylum citrifolium](/Adolfojara.github.io/Erythroxylum citrifolium )
 
